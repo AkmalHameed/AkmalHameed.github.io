@@ -1,4 +1,5 @@
-AKMAL HAMEED 
+                                                 AKMAL HAMEED 
+
 akmalhamid143@gmail.com | (647)300-8609 | Oshawa ON 
 PROFILE_________________________________________________________________________________ 
 A polite and respectful International Technology Professional student with a Costumer Service background and working 
@@ -35,4 +36,4 @@ Graduated Journalism faculty
 Kabul university, Afghanistan 01/2007 
 Reference: Raymond Leighton Instructor in Trios Collage 
  Email: Raymond.leighton@trios.com 
-Phone: (289) 988-221
+Phone: (289) 988-2210
